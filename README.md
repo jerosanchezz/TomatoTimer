@@ -20,7 +20,7 @@ FEATURES:
 
 If you have any questions or suggestions about our app, do not hesitate to contact us.
 
-Email: j8wmst@gmail.com
+Email: adam@adamtecle.com
 
 
 
